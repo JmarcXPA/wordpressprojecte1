@@ -1,1 +1,0 @@
-# wordpressprojecte1
